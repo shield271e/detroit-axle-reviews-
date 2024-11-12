@@ -10,4 +10,5 @@ Reliable Performance: Numerous reviews highlight the durability and reliability 
 Fast Shipping: Detroit Axle prides itself on quick shipping times, ensuring you get your parts when you need them.
 While some customers may have had isolated experiences with specific products, the overall feedback on Detroit Axle is overwhelmingly positive. If you're looking to save money without sacrificing quality, Detroit Axle is definitely worth considering.
 
-https://amzn.to/4fmHJaK
+<a href="https://amzn.to/4fmHJaK"><img src="https://www.ecomengine.com/hs-fs/hubfs/images/screenshots/amazon/available-amazon-badge.jpg?width=800&amp;name=available-amazon-badge.jpg" alt="Available at Amazon badge on a white background" width="200" loading="lazy" style="width: 200px;" ></a>
+
